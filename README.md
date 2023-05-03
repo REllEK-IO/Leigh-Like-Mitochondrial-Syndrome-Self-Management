@@ -17,7 +17,7 @@ Consult your Doctor. The main issue with this approach is having to be gentle wi
 * Lion's Mane Capsules Once a Day
 * Magnesium Once a Day, but if legs feel like they are cramping a half dose resolves
 * Ashwaghanda Once a Day, this is to relieve overactive adrenals from surviving
-* PG8 - Any Probiotics, helps relieve gas and maintain a healthy gut due to the dosing b vitamins
+* PB8 - Any Probiotics, helps relieve gas and maintain a healthy gut due to the dosing b vitamins
 * Creatine Once a Day
 * CBD and Co as Needed
 
