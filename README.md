@@ -18,8 +18,11 @@ Consult your Doctor. The main issue with this approach is having to be gentle wi
 * Magnesium Once a Day, but if legs feel like they are cramping a half dose resolves
 * Ashwaghanda Once a Day, this is to relieve overactive adrenals from surviving
 * PB8 - Any Probiotics, helps relieve gas and maintain a healthy gut due to the dosing b vitamins
-* Creatine Once a Day
+* 1/2 Scoop Creatine Once a Day also Drink more Water
 * CBD and Co as Needed
+  * I find CBD is good for relieving burn and anxiety from migraines
+  * CBG specifically for Aura Migraines, though be careful with this dosage
+  ~> ~ 
 
 The Goal is to Feel Clear as you Can.
 I highly suggest exercise to maintain strength is foundational to encourage neurogenese elements to maintain their own regrowth from regression. As your main objective is to find a balance of routine that works for you. So that you are at the just before burnout and can step into such if you need to get work done. But otherwise rest the moment you start to feel burnout take effect. As the cost of such is not worth it. While I am lucky to know how to manage myself and thankfully full access to the internet allowed me to dive into research material. There was no how to and the only supportive doctors I had in this situation where my cardiologists in the beginning of this journey.
@@ -39,6 +42,8 @@ Hopefully this will be resolved through a Personalized Medication Revolution of 
 * Tremors
 * Restless leg
 * Difficulty Settling
-* Agitation
+* Irritability
+* Anxiety
+* Depression
 * Difficulty with Eye Coordination
 * ETC
