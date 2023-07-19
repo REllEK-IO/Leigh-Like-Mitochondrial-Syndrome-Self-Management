@@ -1,4 +1,4 @@
-**Normally do not give Warnings, but you are Warned as this Content is Dark.**
+##### Normally do not give Warnings, but you are Warned as this Content is Dark.
 *Very important that if you believe you are experiencing such to see an Expert. I have a DNA test that happened to have Leigh Like Show up, but that was only due to a Seperate Medical Complication that happened to share similarities with the complication. As DNA tests are only a generalized search in the scope of your symptoms at the time of the request. And was very lucky to find out as I thought what I was experiencing was normal even though I knew the opposite.*
 # Leigh Like Mitochondrial Syndrome Self Management for the Survivor to Thriver
 
