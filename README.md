@@ -1,4 +1,4 @@
-##### Normally do not give Warnings, but you are Warned as this Content is Dark.
+#### Normally do not give Warnings, but you are Warned as this Content is Dark.
 *Very important that if you believe you are experiencing such to see an Expert. I have a DNA test that happened to have Leigh Like Show up, but that was only due to a Seperate Medical Complication that happened to share similarities with the complication. As DNA tests are only a generalized search in the scope of your symptoms at the time of the request. And was very lucky to find out as I thought what I was experiencing was normal even though I knew the opposite.*
 # Leigh Like Mitochondrial Syndrome Self Management for the Survivor to Thriver
 
@@ -9,7 +9,7 @@ Thus I need to state this: *This Syndrome does not effect Intelligence,* only th
 My specific mutation causes a deficiency of biotin within my mitochondria and as a simplification. But have to wait for Science to catch up for Us in this Camp. I do want you to know. As I took this for granted. Other people do not experience headaches like they are millions of burning needles. It sounds the same to you, head ache, but it's not how other people experience that. It's a burning migraine due to too much lactic acid being built up and causing strain on your mitochondria shredding the surrounding neurons/fibers. 
 
 ## Routine
-Consult your Doctor. The main issue with this approach is having to be gentle with vitamin dosages. And hypersensitivity allergic reactions can become an issue. I advice a very light antihistamine to counteract. 
+Consult your Doctor. The main issue with this approach is having to be gentle with vitamin dosages. As hypersensitivity allergic reactions can become an issue. I advise a very light antihistamine to counteract. 
 * Biotin 5000mcg Extended Release 3x a Day with a 7 hour on average length of effectiveness (Using Hair Vitamins for this, only supplement on the market with Extended Release)
 * B1 3x a Day 50mg every 5 hours and 10mg every 6
 * Vitamin E 268mg once a day in morning
