@@ -51,7 +51,7 @@ Hopefully this will be resolved through a Personalized Medication Revolution of 
 
 ## The Glitch
 All of this Comes with my Own Personal Glitch.
-As I am Autistic my mind has an increased amount of reelin that is a natural resistence towards the effects of my syndrome.
-And because my Mind is Perpectually in Regression.
-In combination with all my Thoughts being Uncomortable due to the Syndrome so that choice between pushing beyond frustration of learning and any other thought is the same.
+1. As I am Autistic my mind has an increased amount of reelin that is a natural resistence towards the effects of my syndrome.
+2. And because my Mind is Perpectually in Regression.
+3. In combination with all my Thoughts being Uncomortable due to the Syndrome so that choice between pushing beyond frustration of learning and any other thought is the same.
 We Speak to Survival of the Fittest, in that Case my Intelligence is my Path towards Survival.
