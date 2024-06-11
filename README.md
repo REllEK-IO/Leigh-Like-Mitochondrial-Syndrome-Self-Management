@@ -37,7 +37,7 @@ I highly suggest exercise to maintain strength is foundational to encourage neur
 
 Hopefully this will be resolved through a personalized medication revolution. But for those with the means to find the needle in the haystack for this unfortunate syndrome. You are not alone. I survived and am thriving when I shouldn't be. Beat back the passage of time with any tool you can find that helps, not distracts from your journey. As we are not afforded the same comfort of the passage of time as everyone else.
 
-## My Symptoms
+## My Symptoms at their Worse 2020
 * Intractible Burning Migraine - This is something I was born into and the best way to explain the sensation. Feels similar to depression, except I knew exactly what to do to help myself, but all actions to help myself would end up burning myself. And have experienced many breakthroughs because of this pressure, but it ultimately results in a debt of burnout that is quite literal.
 * Multiple Learning Disabilities - I presented yound and not quite sure why I never received the diagnosis all markers where pointing towards Autism. But because of tests, one in which I bombed on purpose to avoid increased homework(more pain) my friends were warning me about. Purposefully placing myself in the just smart enough category in school to not be helped and was shuffled in the in-between.
 * Insomnia - Is definitely the most persistent side effect of the syndrome when untreated with CBD. As to a normal person, it wouldn't feel like anything. But for me, due to the familiarity with the pain. I know quickly if there is any real relief or a placebo. As I have tried everything under the sun. And what has survived this list, is everything that has brought any relief from a terrible situation.
@@ -56,7 +56,27 @@ Hopefully this will be resolved through a personalized medication revolution. Bu
 * Depression
 * Difficulty with Eye Coordination
 * Physical Sensory Hallucinations (Ability to tell hot from cold, etc...)
+* Irregular Speach
+* Dyslexia
 * ETC...
+
+## Current Symptoms 2024
+* Regression - If exceeding nine hours of focused activity a day, compounding.
+* Migraines - Typically last for two days and are irregular.
+* Aura Migraines - Mainly present due to some allergic irritants, over activity, or combination.
+* Flair ups due to over activity
+  * Physical Sensory Hallucinations
+  * Difficulty Breathing
+  * Burning Migraine
+  * Tremors
+  * Irregular Speach
+  * Dyslexia
+
+Noting the intractible burning migraine is my tell for when I need to take my vitamins. And can currently make it some ten hours before symptoms present, but such is also compounding.
+
+I can now drink caffeine, but have to be responsible otherwise my system can be over stimulated. Merely have to face everything head first without a chemical crutch outside of the CBD combos, that can also make my system fair up if I use too much.
+
+Merely in some critical balance and am able to get sick without massive regression.
 
 ## The Glitch
 All of this comes with my own personal glitch.
