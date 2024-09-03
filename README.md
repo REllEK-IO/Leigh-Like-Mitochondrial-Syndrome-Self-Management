@@ -1,14 +1,32 @@
 #### Normally do not give Warnings, but you are Warned as this Content is Dark.
-*Very important that if you believe you are experiencing such to see an Expert. I have a DNA test that happened to have Leigh Like show up, but that was only due to a seperate medical complication that happened that shared similarities with the complication. As DNA tests are only a generalized search in the scope of your symptoms at the time of the request. And was very lucky to find out as I thought what I was experiencing was normal even though I knew the opposite.*
+*Very important that if you believe you are experiencing such to see an Expert. I have a DNA test that happened to have Leigh Like show up, but that was only due to a separate medical complication that happened that shared similarities with the complication. As DNA tests are only a generalized search in the scope of your symptoms at the time of the request. And was very lucky to find out as I thought what I was experiencing was normal even though I knew the opposite.*
 
-For year I thought my system was like a race car running without oil. And it turned out I was right.
+"For the majority of my life I thought my system was like a race car running without oil. And it turned out I was right."
 
 # Leigh Like Mitochondrial Syndrome Self Management for the Survivor to Thriver
-The main barrier for me wanting to go public with this in my own career as a professional is whether this effects my judgement in prospects to self determination. As this syndrome is incurable, but manageable. I am also in a giant window of uncertainty as to the effects of going through so many regression periods in my life. Which has turned out to be my strength of weakness as the only kindness to the syndrome. Is that when you have to relearn everything over and over again. You get very efficient at connecting the points.
+The main reason why I choose to be public with this directly associated to my own career. Is to demonstrate quality without qualification. As the crux of Leigh's when not managed is that every day is unavoidable burn out.
 
-Thus I need to state this: *This Syndrome does not effect Intelligence,* only the foundational automatics and short term memory being one of them. There is an irony in certain sayings in regards to finding peace with oneself in regards to breath. The difficulty with that saying, is it assumes your ability to automatically breath isn't being interrupted by an aura migraine that is making it difficult to walk or talk coherently. That's long behind me thanks to this self maintenance and it may just be me with this specific mutation and one I can't even pass on. Remember to speak to your doctor if you are concerned.
+That continuously compound over a life time to find oneself just another generalized Statistic, without anyone knowing the underlying specifics. Noting that I am the 23rd individual to live into adulthood with this classification of illness, and even that is with what can be measured.
 
-My specific mutation ultimately is merely a vitamin deficiency of biotin. Specifically my mitochondria are unable to produce such on their own as a simplification. The cure here would be simple via some trusted system of CRIPSR. However even if such was offered to me the next moment, I do not know if this mutation is completely detrimental. There is a difference in perception that was earned over a period of years in regards to the entertainment of sets of information. Noting that individuals the dawn of the 21st century have difficulty entertaining ideas beyond two sides. Whereas the effect on my perception is an automatic shade of gray with no absolute binary beyond symmetries apparent.
+*This Syndrome does not effect Intelligence,* but does effect the foundational automatic functions and short term memory by consequence. There is an irony in certain sayings in regards to finding peace with oneself in regards to breath. The difficulty with that saying, is it assumes your ability to automatically breath isn't being interrupted by an aura migraine. And you have to by force of will keep yourself breathing, but then again just breath.
+
+That period is long behind me thanks to this self maintenance and it may just be me with this specific mutation and one I can't even pass on. Remember to speak to your doctor if you are concerned.
+# The Cure for this Illness is Bounded Entropy
+My specific mutation ultimately is merely a vitamin deficiency of biotin. Due to my mitochondria are unable to produce an adequate amount of it. It effectively increase the entropy of my system and taking the hair vitamin bounds the entropy. Decreasing the rate of damage to something that can heal over time, like everyone else.
+
+The ultimate cure here would be simple via some trusted system of CRISPR.
+
+However even if such was offered to me the next moment, I do not know if this mutation is completely detrimental. There is a difference in perception that was earned over a period of years to be able to easily entertain of sets of information.
+
+Further I have the ability to multiplex multiple streams of information together at the same time. Effectively being able to choose both and propose the word Anor (And/Or/Everything-in-between).
+
+The hard truth to this is that I am recoverying and work more than anyone I know. Despite where I came from just in 2020.
+
+It was initially diagnosed with Brugada Syndrome (Sudden Death Syndrome), due to a compounding medication complication.
+
+My merit without qualification, is that I through higher order reasoning survived Leigh Like, Brugada, Hypersensitivity Syndromes and Covid at the same time. While noting that my lungs were on of the main parts taken out of commission. To over use of an inhaler to none at all.
+
+Curiosity is what Drives Me, and my Nervous System is on Fire and only Drives me Forward.
 
 ## Routine
 Consult your Doctor. The main issue with this approach is having to be gentle with vitamin dosages. As hypersensitivity allergic reactions can become an issue. I advise a very light antihistamine to counteract.
@@ -33,9 +51,17 @@ Consult your Doctor. The main issue with this approach is having to be gentle wi
 
 The goal is to feel clear as you can.
 
-I highly suggest exercise to maintain strength is foundational to encourage neurogenesis elements to maintain their own regrowth from periods of regression. As your main objective is to find a balance of routine that works for you. So sitting outside the fire, but can step into such if you need to get work done. Otherwise rest the moment you start to feel burnout take effect if able. As the cost of such can be worth it for the sake of learning, but too far and your core systems are at risk. While I am lucky to know how to manage myself and thankfully full access to the internet allowed me to dive into research material thanks to information provided by my doctors. There was no how to and the only supportive doctors I had were my cardiologists in the beginning of this journey in 2020.
+I highly suggest exercise to maintain strength is foundational to encourage neurogenesis elements to maintain their own regrowth from periods of regression. As your main objective is to find a balance of routine that works for you. 
 
-Hopefully this will be resolved through a personalized medication revolution. But for those with the means to find the needle in the haystack for this unfortunate syndrome. You are not alone. I survived and am thriving when I shouldn't be. Beat back the passage of time with any tool you can find that helps, not distracts from your journey. As we are not afforded the same comfort of the passage of time as everyone else.
+The best metaphor is its like sitting by a campfire, but can step into the fire if you need to get work done. Otherwise rest the moment you start to feel burnout take effect if able. The cost of such can be worth it for the sake of learning, but too far and your core systems are at risk.
+
+The internet and research from trusted sources is your friend if you find yourself unable to get help. I got lucky due to this being treated by a hair vitamin. If only I had gone bald in high school.
+
+The solution to this is the advent of hyper personalization, which is accomplished via the reduction the cost of intellectual labor.
+
+But for those not in a post singularity world, with the means to find the needle in the haystack for specific health issues your doctor shrugs at. You are not alone. I survived and am thriving when I shouldn't be. Beat back the passage of time with any tool you can find that helps, as it only adds to your journey. As we are not afforded the same comfort of the passage of time as everyone else.
+
+"Everything is fine, but I was born in fire that was solved by a hair vitamin."
 
 ## My Symptoms at their Worse 2020
 * Intractible Burning Migraine - This is something I was born into and the best way to explain the sensation. Feels similar to depression, except I knew exactly what to do to help myself, but all actions to help myself would end up burning myself. And have experienced many breakthroughs because of this pressure, but it ultimately results in a debt of burnout that is quite literal.
@@ -72,24 +98,31 @@ Hopefully this will be resolved through a personalized medication revolution. Bu
   * Irregular Speach
   * Dyslexia
 
-Noting the intractible burning migraine is my tell for when I need to take my vitamins. And can currently make it some ten hours before symptoms present, but such is also compounding.
+Noting the intractible burning migraine is my tell for when I need to take my vitamins. Currently can make it some ten hours before symptoms present, but is also compounding.
 
 I can now drink caffeine, but have to be responsible otherwise my system can be over stimulated. Merely have to face everything head first without a chemical crutch outside of the CBD combos, that can also make my system fair up if I use too much.
 
-Merely in some critical balance and am able to get sick without massive regression.
+Merely in some critical balance and am able to get sick without minor regression. Was major at one point.
 
 ## The Glitch
 All of this comes with my own personal glitch.
-1. As I am Autistic my mind has an increased amount of reelin that is a natural resistence towards the effects of my syndrome.
-2. And because my mind is perpectually in some super critical between regression and repair.
-3. In combination with all my thoughts being uncomfortable due to the syndrome so that choice between pushing beyond frustration of learning and any other thought is the same.
-  * The above is the most important strength of weakness of this syndrome.
+1. As I am Autistic my mind has an increased amount of reelin that is a natural resistance towards neurodenerative diseases.
+2. My mind is perpetually in some super critical between regression and repair.
+3. In combination with all my thoughts being uncomfortable, makes the choice between pushing beyond frustration of learning and any other thought is the same.
+   1. Cognitive dissonance doesn't have the same effect and am merely curious all the time.
+   2. This is what defines a **strength of weakness** of this syndrome.
+   3. Human's can get used to anything, and always find a grey baseline.
+
 
 ### We Speak to Survival of the Fittest, in that Case my Intelligence is my Path towards Survival.
-#### Update June 2024
+#### Update September 2024
 Updated the above to be a little less spicy. Starting to feel good enough to work my overworked schedule, but have a cap of ~70 hours a week. The main impact to this cap is physical activity, mental does not have the same regression that it used to at the beginning of my diagnosis journey in 2020. It is also important to note that the effects that I've experienced were directly due to this condition being undiagnosed and having received a drug injection for the migraines. That ultimately gave my hypersensitivity syndrome for three years. So what I have been experiencing, is something that I would have only ever encountered if I made it unscathed to my 50s with my condition undiagnosed.
 
-The curiosity in regards to my situation. Is that in 2020, I did not know if I would recovery beyond the fragile balance my body was put into due to the medical complication. No compensation, and no lawyer willing to take my case. Effectively only survived due to savings and am lucky to be here today. What is curious about my case in particular is that brain damage is essentially treated as permanent. But for the sake of my heart health, the ability to breath without an inhaler, and being allowed to play video games again without a skull crushing migraine. There seems to be a bit of a gap in our medical knowledge my experience directly contradicts. And in large part why this document exists.
+The curiosity in regards to my situation. Is that in 2020, I did not know if I would recovery beyond the fragile balance my body was put into due to the medical complication. No compensation, and no lawyer willing to take my case. 
+
+Effectively only survived due to savings and am lucky to be here today. What is curious about my case in particular is that brain damage is traditionally treated as permanent. But for the sake of my heart health, the ability to breath without an inhaler, and being allowed to play video games again without a skull crushing migraine.
+
+**There seems to be a bit of a gap in our medical knowledge my experience directly contradicts. And in large part why this document exists.**
 
 Due to the slow healing process and only being about four years out in my recovery. It does feel like that old adage that it takes seven years for your body to completely renew itself. Is congruent with how much I have healed. Meaning I am only have way through my recovery process. And with my symptoms treated I am enjoying more freedom than I ever had in my life, despite the unfortunate hiccups.
 
