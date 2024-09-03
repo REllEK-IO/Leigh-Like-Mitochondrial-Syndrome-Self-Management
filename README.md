@@ -18,7 +18,7 @@ The ultimate cure here would be simple via some trusted system of CRISPR.
 
 However even if such was offered to me the next moment, I do not know if this mutation is completely detrimental. There is a difference in perception that was earned over a period of years to be able to easily entertain of sets of information.
 
-Further I have the ability to multiplex multiple streams of information together at the same time. Effectively being able to choose both and propose the word Anor (And/Or/Everything-in-between).
+Further I have the ability to multiplex and decomplex multiple streams of information together at the same time. Effectively being able to choose both and propose the word Anor (And/Or/Everything-in-between).
 
 The hard truth to this is that I am recoverying and work more than anyone I know. Despite where I came from just in 2020.
 
